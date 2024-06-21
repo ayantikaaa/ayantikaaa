@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on tbh nothing at this moment cuz I'm still a noob.
 - 📫 How to reach me **IDK**
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I can steal your heart.
+- ⚡ Fun fact: I love pastries.
 
 <!---
 ayantikaaa/ayantikaaa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
